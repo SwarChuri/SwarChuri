@@ -1,4 +1,4 @@
-### Hi there 👋
+### alt account of [SC136](https://github.com/SC136)
 
 <!--
 **SwarChuri/SwarChuri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
